@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @suykkwsz
+- 👋 Hi, I’m Suy!
 - 👀 I’m interested in eating shit
 - 🌱 I’m currently learning programming
-- 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me yaaayyy idek
+- 📫 How to reach me: @suykkwsz in any social media
 - 😄 Pronouns: any pronouns
 - ⚡ Fun fact: idk im a such boring person
 
