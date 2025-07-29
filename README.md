@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @suykkwsz
-- 👀 I’m interested in eat shit
+- 👀 I’m interested in eating shit
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me yaaayyy idek
